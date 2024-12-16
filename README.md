@@ -1,2 +1,2 @@
 # Project-Remembrance
-Kawan, sudah lama kita tak jumpa..
+Masih dalam tahap permulaan! nantikan untuk sesuatu yang akan datang 👀
